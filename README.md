@@ -5,4 +5,5 @@ work in progress haha lmao
          >_<
     </th>
   </tr>
-</table>
+</table
+${\color{#FEC5C9}\textsf{yeah)}$
