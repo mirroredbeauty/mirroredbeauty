@@ -2,8 +2,8 @@ work in progress haha lmao
 <table>
   <tr>
     <th>
-         >_<
+         insert text here!
     </th>
   </tr>
 </table
-  ${\white{#fffff}\it doesnt workf{TXT}}$
+  
