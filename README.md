@@ -1,3 +1,4 @@
+${\color{#90D5FF}\textsf{OH MY GOD MY COLOR TEXT FINALLY WORKS DUDE}}$
 
 <table>
   <tr>
