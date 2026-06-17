@@ -8,8 +8,7 @@
 
 ${\color{#FFBAF4}\textsf{𝙔𝙐𝙈𝙀𝙎𝙃𝙄𝙋𝙋𝙄𝙉𝙂 𝙎𝙏𝘼𝙏𝙐𝙎 and 𝙏𝙀𝙍𝙈𝙎: IAM okaysharing , gachikoi , i will respect you. }}$
 
-${\color{#D3D3FB}\textsf{ okaysharing means: A yumeshipper thats okay for their doubles as long they}}$
-${\color{#D3D3FB}\textsf{respect their boundaries.}}$
+${\color{#D3D3FB}\textsf{ okaysharing means: A yumeshipper thats okay for their doubles as long they}}$ ${\color{#D3D3FB}\textsf{respect their boundaries.}}$
 
 ${\color{#B8E2FF}\textsf{gachikoi means: Gender-neutral and/or male-aligned. }}$
 
