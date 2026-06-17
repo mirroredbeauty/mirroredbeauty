@@ -15,7 +15,7 @@ ${\color{#B8E2FF}\textsf{gachikoi means: Gender-neutral and/or male-aligned. }}$
 
 ${\color{#E4F5DC}\textsf{doubles means:The person who has the same romantic fictional other as yours.}}$
 
-${\color{#F4FFB8}\textsf{𝘀𝗼 𝗽𝗹𝗲𝗲𝗲𝗮𝘀𝗲 𝗿𝗲𝘀𝗽𝗲𝗰𝘁 𝗺𝘆 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 ;-;}}$
+${\color{#F4FFB8}\textsf{𝘀𝗼 𝗽𝗹𝗲𝗲𝗲𝗮𝘀𝗲 𝗿𝗲𝘀𝗽𝗲𝗰𝘁 𝗺𝘆 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀 >_>}}$
 
  <img width="200" height="167" alt="1000006088" src="https://github.com/user-attachments/assets/bdc2d356-3034-4b00-925c-2e046d5d17ac" />
 
