@@ -1,3 +1,2 @@
-<img width="1754" height="1240" alt="1000006076" src="https://github.com/user-attachments/assets/1a14cd55-e939-4a06-a307-e7ffd9e81113" />   
 
-wip >_>
+  ${\color{#FFBAF4}\textsf{𝑇ake 𝘼}}$ ${\color{#D3D3FB}\textsf{  ｍed𝙞cat𝙞on}}$ ${\color{#B8E2FF}\textsf{𝐑oman!}}$
